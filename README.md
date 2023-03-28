@@ -31,4 +31,4 @@ Vasaras skolu organizē krievu valodā runājoši latvieši, bet mēs visi brīv
 Lūdzu, ņemiet vērā, ka mūsu interpretācijā filmēšana vai ierakstīšana bez piekrišanas tiek kvalificēta kā uzmācība saskaņā ar kodeksu par uzvedību:
 
 > Harassment includes stalking or following; harassing (non-consentual) photography or recording.
-> _(Uzmācība ietver vajāšanu vai sekošanu; uzmācīgu (bez piekrišanas veiktu) fotogrāfēšanu vai ierakstīšanu)_
+> _(Uzmākšanās ietver vajāšanu vai sekošanu; uzmācīgu (bez piekrišanas veiktu) fotogrāfēšanu vai ierakstīšanu)_
