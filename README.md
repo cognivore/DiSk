@@ -2,9 +2,8 @@
 
 ## Datorzinātnes Skola +
 
-"Datorzinātnes Skola Pluss" ir vasaras skola.
-
-Datorzinātnes Skola Pluss ir vasaras skola. Mūsu galvenās vērtības ir bērnu drošība, kā arī zinātniski smagā, bet noderīga matemātikas, fizikas, ķīmijas, informātikas un starpdisciplināru studiju jēdzienu apguve.
+Datorzinātnes Skola Pluss ir vasaras skola.
+Mūsu galvenās vērtības ir bērnu drošība, kā arī zinātniski smagā, bet noderīga matemātikas, fizikas, ķīmijas, informātikas un starpdisciplināru studiju jēdzienu apguve.
 
 > Mūsu mērķis ir iedvesmot dalībniekus turpināt mācīšanos arī pēc vasaras skolas beigām!
 
