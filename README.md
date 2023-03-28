@@ -15,9 +15,12 @@ Mēs plānojam rīkot mūsu vasaras skolu augustā kādā pilsētā, kas neatrod
 
 Dienas projekti sākas no rīta un ilgst 3 stundas ar pārtraukumiem.
 
-Pēc tam seko liela pusdienas pārtraukuma, kurā mēs rīkosim vai nu projektu prakses, vai, ja būs pietiekami liela interese par vieslektoriem, lekcijas.
+Pēc tam seko liela pusdienas pārtraukuma, kurā mēs rīkosim:
+ * vai nu projektu prakses, 
+ * vai, ja būs pietiekami liela interese par vieslektoriem, lekcijas,
+ * vai brīvās izvēles sporta aktivitātes.
 
-Vakara pasākumi būs intelektuālas spēles, piemēram, komandas matemātikas, fizikas un informātikas sacensības. Vai arī kaut kas atslodzes pilnāks par to.
+Vakara pasākumi būs intelektuālas spēles, piemēram, komandas matemātikas, fizikas un informātikas sacensības. Vai kaut kadi "laid back" pasākumi.
 
 Vasaras skolu organizē krievu valodā runājoši latvieši, bet mēs visi brīvi runājam angliski, visi saprotam un lielākā daļa no mums runā latviski (lai gan ar akcentu). Tāpēc, ja būs interese no nekrievu valodā runājošiem latviešiem vai cilvēkiem no citām valstīm pievienoties, mēs spēsim visus izmitin
 
