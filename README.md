@@ -7,7 +7,7 @@ Mūsu galvenās vērtības ir bērnu drošība, kā arī zinātniski smagā, bet
 
 > Mūsu mērķis ir iedvesmot dalībniekus turpināt mācīšanos arī pēc vasaras skolas beigām!
 
-Mēs pieņemam [Berlīnes Kodeksu par uzvedību](https://berlincodeofconduct.org/)\* un pašlaik meklējam sertificētu skolotāju vasaras nometnei, kurš pirms nometnes arī vadīs apmācību par to, ko darīt un ko nedrīkst darīt.
+Mēs pieņemam [Berlīnes Kodeksu par uzvedību](https://berlincodeofconduct.org/)\* un pašlaik meklējam sertificētu skolotāju vasaras nometnei, kurš pirms nometnes arī vadīs apmācību par to, ko citi skolotāji var darīt un ko skolotājiem nedrīkst darīt.
 
 ## Kad? Kur? Kas?
 
